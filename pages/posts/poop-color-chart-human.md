@@ -1,172 +1,172 @@
 ---
-title: "poop stool color changes color chart and meaning healthy concept stock - types of poop what doctors need you to know the healthy | poop color chart human"
-date: "2023/09/07"
-description: "Green stools may be a normal variant."
+title: "healthy human poop chart - poop stool color changes color chart and meaning healthy concept stock | poop color chart human"
+date: "2023/05/31"
+description: "Webpoop comes in all colors (and all smells and textures) including many shades of brown, green, or yellow."
 tag: "Uncategorized"
 ---
 
-# poop stool color changes color chart and meaning healthy concept stock - types of poop what doctors need you to know the healthy | poop color chart human
-**poop stool color changes color chart and meaning healthy concept stock - types of poop what doctors need you to know the healthy | poop color chart human**. Green stools may be a normal variant. The chart is designed to illustrate how different colors are created. Normal stool color can range from light yellow to brown to almost black. A blockage of the bile . As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body.
-A blockage of the bile . This is the color (or colour) of normal, healthy stool. Normal stool color can range from light yellow to brown to almost black. As we previously mentioned, varying shades of brown . A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors.
-[![healthy and unhealthy stool poop colors explained](https://www.verywellhealth.com/thmb/LywZ55absHEC6aeG5TKa9gyTVM4=/900x0/filters:no_upscale():max_bytes(150000):strip_icc()/healthy-and-unhealthy-stool-89211-color-V1-9cef9502a0a5433994307575289f34c7.png "healthy and unhealthy stool poop colors explained")](https://www.verywellhealth.com/thmb/LywZ55absHEC6aeG5TKa9gyTVM4=/900x0/filters:no_upscale():max_bytes(150000):strip_icc()/healthy-and-unhealthy-stool-89211-color-V1-9cef9502a0a5433994307575289f34c7.png)
-<small>healthy and unhealthy stool poop colors explained from www.verywellhealth.com</small>
+# healthy human poop chart - poop stool color changes color chart and meaning healthy concept stock | poop color chart human
+**healthy human poop chart - poop stool color changes color chart and meaning healthy concept stock | poop color chart human**. Thinner and more snakelike, plus smooth and soft. Your diet and how much bile is in it. When to call the doctor. The normal stool color is brown. The color is the result of what you eat and how much bile is in your stool.
+Thinner and more snakelike, plus smooth and soft. However, a change in diet or the presence of some conditions can lead to a change in stool color. Your diet and how much bile is in it. When to see your doctor. It starts out as a.
+[![poop guide 101 how to tell your childs health by their stool dr parents](https://drparents.com/wp-content/uploads/2020/10/color-wheel-poop-1568x972.jpg "poop guide 101 how to tell your childs health by their stool dr parents")](https://drparents.com/wp-content/uploads/2020/10/color-wheel-poop-1568x972.jpg)
+<small>poop guide 101 how to tell your childs health by their stool dr parents from drparents.com</small>
 
-It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. Normal stool color is brown. Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. Normal stool color can range from light yellow to brown to almost black. As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing.
+Your diet and how much bile is in it. Weboct 12, 2023 · black stool. Bile is a fluid your liver makes to digest fats. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. Webthe color of your stool depends on a couple of things: Webfeb 10, 2022 · type 1: Should i go to the er? In general, these colors are normal and variations in these colors do not indicate that anything is wrong.
 
-### Everyone poops, as taro gomi, author of a children’s book by that very name, knows well.
-The chart is designed to illustrate how different colors are created. Green stools may be a normal variant. Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. Normal stool color is brown. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. A blockage of the bile . A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. Adults could learn a thing or two fr.
-Adults could learn a thing or two fr. If stools are white, gray, or pale, . It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. A blockage of the bile . This is the color (or colour) of normal, healthy stool.
-[![poop chart is your poop healthy see how to read your stool](https://www.bulletproof.com/wp-content/uploads/2020/01/Poop_pinterest-01-614x921.jpg "poop chart is your poop healthy see how to read your stool")](https://www.bulletproof.com/wp-content/uploads/2020/01/Poop_pinterest-01-614x921.jpg)
-<small>poop chart is your poop healthy see how to read your stool from www.bulletproof.com</small>
+### It starts out as a.
+Healthcare providers use the chart to help diagnose gastrointestinal (gi) issues such as irritable bowel syndrome (ibs). Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. All shades of brown and even green are considered normal. Thinner and more snakelike, plus smooth and soft. Separate hard lumps, like little pebbles. A healthy stool, then, should reflect a. Checking the color of your stool is a very good way to monitor your overall health. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. When to see your doctor. Webjul 31, 2020 · white poop. The normal stool color is brown. Take a quiz to find out what&#039;s causing your stool. Hard and lumpy and starting to resemble a sausage.
+Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. It starts out as a. Fluffy, mushy pieces with ragged edges. A healthy stool, then, should reflect a.
+[![healthy human poop chart](https://static.vecteezy.com/system/resources/previews/005/594/086/non_2x/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-and-abnormal-value-scale-vector.jpg "healthy human poop chart")](https://static.vecteezy.com/system/resources/previews/005/594/086/non_2x/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-and-abnormal-value-scale-vector.jpg)
+<small>healthy human poop chart from static.vecteezy.com</small>
 
-Adults could learn a thing or two fr. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors. Green stools may be a normal variant. A blockage of the bile . This is the color (or colour) of normal, healthy stool.
+Checking the color of your stool is a very good way to monitor your overall health. Should i go to the er? When to see your doctor. However, a change in diet or the presence of some conditions can lead to a change in stool color. Healthcare providers use the chart to help diagnose gastrointestinal (gi) issues such as irritable bowel syndrome (ibs). In general, these colors are normal and variations in these colors do not indicate that anything is wrong. Hard and lumpy and starting to resemble a sausage. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool.
 
-### If stools are white, gray, or pale, .
-As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. As we previously mentioned, varying shades of brown . This is due to the presence of bile in the stool. Green stools may be a normal variant. It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors. This is the color (or colour) of normal, healthy stool. If stools are white, gray, or pale, . Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. Adults could learn a thing or two fr. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume.
-Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . This is due to the presence of bile in the stool. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. The chart is designed to illustrate how different colors are created.
-[![pin on guide to life](https://i.pinimg.com/originals/f2/d5/97/f2d5972bc78bc9f7d3facc7263eccd96.jpg "pin on guide to life")](https://i.pinimg.com/originals/f2/d5/97/f2d5972bc78bc9f7d3facc7263eccd96.jpg)
-<small>pin on guide to life from i.pinimg.com</small>
+### Webfeb 10, 2022 · type 1:
+Your diet and how much bile is in it. Bile is a fluid your liver makes to digest fats. All shades of brown and even green are considered normal. Take a quiz to find out what&#039;s causing your stool. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. Should i go to the er? When to see your doctor. Webthe color of your stool depends on a couple of things: It starts out as a. Webjul 31, 2020 · white poop. Weboct 8, 2022 · stool comes in a range of colors. Webfeb 10, 2022 · type 1:
+Bile is a fluid your liver makes to digest fats. Webjul 31, 2020 · white poop. Weboct 12, 2023 · black stool. Should i go to the er? Hard and lumpy and starting to resemble a sausage.
+[![healthy human poop chart](https://static.vecteezy.com/system/resources/previews/005/594/086/non_2x/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-and-abnormal-value-scale-vector.jpg "healthy human poop chart")](https://static.vecteezy.com/system/resources/previews/005/594/086/non_2x/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-and-abnormal-value-scale-vector.jpg)
+<small>healthy human poop chart from static.vecteezy.com</small>
 
-As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. Green stools may be a normal variant. This is the color (or colour) of normal, healthy stool. The chart is designed to illustrate how different colors are created. Normal stool color can range from light yellow to brown to almost black.
+It starts out as a. Thinner and more snakelike, plus smooth and soft. Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. Watery with no solid … When to see your doctor. When to call the doctor. Webpoop comes in all colors (and all smells and textures) including many shades of brown, green, or yellow. However, a change in diet or the presence of some conditions can lead to a change in stool color.
 
-### Normal stool color is brown.
-As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. A blockage of the bile . Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. As we previously mentioned, varying shades of brown . Green stools may be a normal variant. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. Adults could learn a thing or two fr. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Normal stool color is brown. If stools are white, gray, or pale, . A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding.
+### Webpoop comes in all colors (and all smells and textures) including many shades of brown, green, or yellow.
+It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. Bile is a fluid your liver makes to digest fats. Take a quiz to find out what&#039;s causing your stool. Fluffy, mushy pieces with ragged edges. Healthcare providers use the chart to help diagnose gastrointestinal (gi) issues such as irritable bowel syndrome (ibs). Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. Watery with no solid … Webnov 26, 2023 · the stool color chart is a visual tool used to identify and categorize the different colors of human stool. Your diet and how much bile is in it. The normal stool color is brown. Only rarely does stool color indicate a potentially serious intestinal condition. When to call the doctor. However, a change in diet or the presence of some conditions can lead to a change in stool color.
 
 
-[![As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. poop color meaning effy moom](http://tse2.mm.bing.net/th?id=OIP.OYaF-YlKc7rO8OJKpzcRSAHaGc&amp;pid=15.1 "poop color meaning effy moom")](https://i0.wp.com/lh4.googleusercontent.com/proxy/zziKWu-_QSWRz2MFOBbnonyUN5W3X5ePwnwLDrjI7nmDz9iDSsVu6XnyH9S8RcUZOImfsGzM2Nn__nkSwT167V5Yh_s2AnFRK2GoSqOhDNLwQmlyGDnC_EcRcbmUe0yaEm-1Gd4qdh-Y=s0-d)
+[![Webfeb 10, 2022 · type 1: color of your poop chart](http://tse4.mm.bing.net/th?id=OIP.1TCNbK65UiT9UAN1-v_3TAAAAA&amp;pid=15.1 "color of your poop chart")](https://i0.wp.com/www.womenworking.com/wp-content/uploads/2018/07/poop.jpg)
 <small>Source: i0.wp.com</small>
 
-A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . As we previously mentioned, varying shades of brown .
-[![It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. the poop scoop what the color of your stool might be telling you](http://tse3.mm.bing.net/th?id=OIP.tg_eNkUNCAwpPyqLzNSONAHaIq&amp;pid=15.1 "the poop scoop what the color of your stool might be telling you")](http://cdn1-www.mandatory.com/assets/uploads/2016/05/man_file_1067582_poo_color.png)
-<small>Source: cdn1-www.mandatory.com</small>
+All shades of brown and even green are considered normal. Webthe color of your stool depends on a couple of things: Should i go to the er? When to see your doctor. Weboct 12, 2023 · black stool.
+[![Webpoop comes in all colors (and all smells and textures) including many shades of brown, green, or yellow. identifying types of poop with the bristol stool chart and more](http://tse3.mm.bing.net/th?id=OIP.vjP12rXbrr049qJ-OgQeagAAAA&amp;pid=15.1 "identifying types of poop with the bristol stool chart and more")](https://images-prod.healthline.com/hlcmsresource/images/topic_centers/2019_5/7561-004-your-poop-and-you-consistency-1296x514-body.jpg)
+<small>Source: images-prod.healthline.com</small>
 
-If stools are white, gray, or pale, . Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. This is the color (or colour) of normal, healthy stool. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. The chart is designed to illustrate how different colors are created.
-[![As we previously mentioned, varying shades of brown . 29 best 30 day breakfast challenge images on pinterest challenge egg](http://tse2.mm.bing.net/th?id=OIP.B-mttsMtSf_n_bKVfKoEcgAAAA&amp;pid=15.1 "29 best 30 day breakfast challenge images on pinterest challenge egg")](https://i.pinimg.com/736x/8c/46/53/8c46532670a4851df7094657926ff533.jpg)
-<small>Source: i.pinimg.com</small>
+Webjul 31, 2020 · white poop. Webfeb 10, 2022 · type 1: All shades of brown and even green are considered normal. It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. Watery with no solid …
+[![Weboct 8, 2022 · stool comes in a range of colors. what your poop color and looks says about your health you should know](http://tse3.mm.bing.net/th?id=OIP.-3DrOoR4Wf8NxlDfR4qnKwAAAA&amp;pid=15.1 "what your poop color and looks says about your health you should know")](https://4.bp.blogspot.com/-9ymJsCpOXns/XMZRc-qpWQI/AAAAAAAAA0g/SqtDrUkkHzY_1Ng696GxZIMFnP4pKod2gCLcBGAs/w1200-h630-p-k-no-nu/BristolStoolChart.png)
+<small>Source: 4.bp.blogspot.com</small>
 
-This is due to the presence of bile in the stool. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. A blockage of the bile .
-[![Adults could learn a thing or two fr. poop stool color changes color chart and meaning healthy concept stock](http://tse3.mm.bing.net/th?id=OIP.ybFZbe7dvPN0M-pY5S9zVAHaHy&amp;pid=15.1 "poop stool color changes color chart and meaning healthy concept stock")](https://i0.wp.com/media.istockphoto.com/vectors/poop-stool-color-changes-color-chart-and-meaning-healthy-concept-vector-id660303612)
-<small>Source: i0.wp.com</small>
-
-This is the color (or colour) of normal, healthy stool. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out.
-[![It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. stool color chart effy moom](http://tse2.mm.bing.net/th?id=OIP.hOQESInkY-ysMrwLhwbspgHaJl&amp;pid=15.1 "stool color chart effy moom")](https://i0.wp.com/pdfimages.wondershare.com/images/tutorial/urine-color-chart.jpg)
-<small>Source: i0.wp.com</small>
-
-As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body. If stools are white, gray, or pale, . A blockage of the bile . Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. This is due to the presence of bile in the stool.
-[![Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. pin by saphir fox on body tips phlegm color stool color chart stool](http://tse2.mm.bing.net/th?id=OIP.Q_HdukZufQd-YhZ1f7yiKQAAAA&amp;pid=15.1 "pin by saphir fox on body tips phlegm color stool color chart stool")](https://i1.wp.com/i.pinimg.com/originals/d9/cb/98/d9cb981c9ca368215b39e507bd5b68aa.jpg)
+Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. When to see your doctor. In general, these colors are normal and variations in these colors do not indicate that anything is wrong. Your diet and how much bile is in it. All shades of brown and even green are considered normal.
+[![It starts out as a. identifying types of poop with the bristol stool chart and more](http://tse3.mm.bing.net/th?id=OIP.0XXwjwiDowzX8Qchozf6ZwAAAA&amp;pid=15.1 "identifying types of poop with the bristol stool chart and more")](https://i1.wp.com/images-prod.healthline.com/hlcmsresource/images/topic_centers/2019_5/7561-001-your-poop-and-you-color-1296x728-body.jpg)
 <small>Source: i1.wp.com</small>
 
-This is due to the presence of bile in the stool. Green stools may be a normal variant. Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. Adults could learn a thing or two fr.
-[![This is due to the presence of bile in the stool. if you are not pooping you are not in the clear the sol kissed vegan](http://tse4.mm.bing.net/th?id=OIP._LewT_yjvgNaF31wCFxTgwAAAA&amp;pid=15.1 "if you are not pooping you are not in the clear the sol kissed vegan")](https://i0.wp.com/www.solkissedvegan.com/wp-content/uploads/2017/12/Bristol-Stool-and-Color-Chart.jpg?resize=198%2C300)
+Webfeb 10, 2022 · type 1: Hard and lumpy and starting to resemble a sausage. Webpoop comes in all colors (and all smells and textures) including many shades of brown, green, or yellow. The color is the result of what you eat and how much bile is in your stool. However, a change in diet or the presence of some conditions can lead to a change in stool color.
+[![Webnov 26, 2023 · the stool color chart is a visual tool used to identify and categorize the different colors of human stool. evaluating 5 qualities of poop to determine your health and diet](http://tse2.mm.bing.net/th?id=OIP.Ud12qYI2oyMeEBG_CkMo3gAAAA&amp;pid=15.1 "evaluating 5 qualities of poop to determine your health and diet")](https://i0.wp.com/www.advancedhealing.com/wp-content/uploads/Bristol-Stool-Chart-Healthy-Poop.jpg)
 <small>Source: i0.wp.com</small>
 
-As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. Adults could learn a thing or two fr. Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. A blockage of the bile . Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding.
-[![A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . types of poop what doctors need you to know the healthy](http://tse1.mm.bing.net/th?id=OIP.1InPLCjDQPm2UF9sgyw02AHaHa&amp;pid=15.1 "types of poop what doctors need you to know the healthy")](https://i0.wp.com/www.thehealthy.com/wp-content/uploads/2020/07/stool-color-chart_2.jpg?w=800)
-<small>Source: i0.wp.com</small>
-
-This is due to the presence of bile in the stool. Adults could learn a thing or two fr. A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often . Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. Green stools may be a normal variant.
-[![Normal stool color can range from light yellow to brown to almost black. pin on health and wellness](http://tse3.mm.bing.net/th?id=OIP.FMLtQvuXhyIUMOg0CBLv9wHaEj&amp;pid=15.1 "pin on health and wellness")](https://i.pinimg.com/originals/fc/3e/6c/fc3e6c7ae7b032424ae8fe90f9a24948.png)
-<small>Source: i.pinimg.com</small>
-
-It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out. Adults could learn a thing or two fr. If stools are white, gray, or pale, . Green stools may be a normal variant. As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop.
-
-[![This is due to the presence of bile in the stool. pin by saphir fox on body tips phlegm color stool color chart stool](http://tse2.mm.bing.net/th?id=OIP.Q_HdukZufQd-YhZ1f7yiKQAAAA&amp;pid=15.1 "pin by saphir fox on body tips phlegm color stool color chart stool")](https://i1.wp.com/i.pinimg.com/originals/d9/cb/98/d9cb981c9ca368215b39e507bd5b68aa.jpg)
+However, a change in diet or the presence of some conditions can lead to a change in stool color. Hard and lumpy and starting to resemble a sausage. The normal stool color is brown. Webjul 31, 2020 · white poop. Webfeb 10, 2022 · type 1:
+[![Webnov 26, 2023 · the stool color chart is a visual tool used to identify and categorize the different colors of human stool. poop stool color changes color chart and meaning healthy concept stock](http://tse1.mm.bing.net/th?id=OIP.Zf726qyxUrg7Xh4o5j-LpQAAAA&amp;pid=15.1 "poop stool color changes color chart and meaning healthy concept stock")](https://i1.wp.com/media.istockphoto.com/vectors/poop-stool-color-changes-color-chart-and-meaning-healthy-concept-vector-id660303612?k=6&amp;m=660303612&amp;s=170667a&amp;w=0&amp;h=19OeHmzHUm8v3ZjvAWHK2YkX36eLuTG0M4uzQp-Pb1M=)
 <small>Source: i1.wp.com</small>
 
-It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day.
-[![A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors. know your health by your poops google search stool chart mucus in](http://tse3.mm.bing.net/th?id=OIP.H1CkuMeWyQDz_yjdKaOeGQAAAA&amp;pid=15.1 "know your health by your poops google search stool chart mucus in")](https://i0.wp.com/i.pinimg.com/736x/2a/47/af/2a47af11ff81fa10f2d2d22c9da2d450--natural-health-close-to.jpg)
-<small>Source: i0.wp.com</small>
+Weboct 12, 2023 · black stool. Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. The normal stool color is brown. Separate hard lumps, like little pebbles. Take a quiz to find out what&#039;s causing your stool.
+[![Webjul 31, 2020 · white poop. poop stool color changes color chart and meaning healthy concept stock](http://tse1.mm.bing.net/th?id=OIP.NJZQtyWQ0yoSy2UuQgJiOQAAAA&amp;pid=15.1 "poop stool color changes color chart and meaning healthy concept stock")](https://www.thehealthy.com/wp-content/uploads/2020/07/stool-color-chart_2.jpg?w=800)
+<small>Source: www.thehealthy.com</small>
 
-Adults could learn a thing or two fr.
-[![Adults could learn a thing or two fr. pin on guide to life](http://tse3.mm.bing.net/th?id=OIP.ERCOVUZ3xcJmgSv1P_wwqAHaY_&amp;pid=15.1 "pin on guide to life")](https://i.pinimg.com/originals/f2/d5/97/f2d5972bc78bc9f7d3facc7263eccd96.jpg)
+It provides a reference guide for healthcare professionals to assess and diagnose various gastrointestinal conditions based on the color and consistency of a patient’s stool. Webfeb 10, 2022 · type 1: In general, these colors are normal and variations in these colors do not indicate that anything is wrong. The color is the result of what you eat and how much bile is in your stool. All shades of brown and even green are considered normal.
+[![Webmay 4, 2023 · the bristol stool chart is used to determine whether human stool (poop) is normal or abnormal based on its shape and how formed or loose it is. pin by saphir fox on body tips phlegm color stool color chart stool](http://tse1.mm.bing.net/th?id=OIP.Q_HdukZufQd-YhZ1f7yiKQHaGt&amp;pid=15.1 "pin by saphir fox on body tips phlegm color stool color chart stool")](https://i.pinimg.com/originals/d9/cb/98/d9cb981c9ca368215b39e507bd5b68aa.jpg)
 <small>Source: i.pinimg.com</small>
 
-As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body.
-[![This is due to the presence of bile in the stool. stool color chart effy moom](http://tse2.mm.bing.net/th?id=OIP.hOQESInkY-ysMrwLhwbspgHaJl&amp;pid=15.1 "stool color chart effy moom")](https://i0.wp.com/pdfimages.wondershare.com/images/tutorial/urine-color-chart.jpg)
+Webfeb 10, 2022 · type 1: Separate hard lumps, like little pebbles. Thinner and more snakelike, plus smooth and soft. However, a change in diet or the presence of some conditions can lead to a change in stool color. Your diet and how much bile is in it.
+[![However, a change in diet or the presence of some conditions can lead to a change in stool color. lets talk about poo what is your health chart poop types](http://tse1.mm.bing.net/th?id=OIP.cHTYyUyvMr0l984zOPVX2gAAAA&amp;pid=15.1 "lets talk about poo what is your health chart poop types")](https://cdn-prod.medicalnewstoday.com/content/images/articles/320/320938/bristol-stool-chart-image-credit-kylet-2011.jpg)
+<small>Source: cdn-prod.medicalnewstoday.com</small>
+
+Your diet and how much bile is in it. Webjul 31, 2020 · white poop. Only rarely does stool color indicate a potentially serious intestinal condition. Checking the color of your stool is a very good way to monitor your overall health. When to see your doctor.
+
+[![Checking the color of your stool is a very good way to monitor your overall health. what the shape and color of your poo say about your health](http://tse1.mm.bing.net/th?id=OIP.Yus0uwSH4cDVrCByi2dcMQAAAA&amp;pid=15.1 "what the shape and color of your poo say about your health")](https://2.bp.blogspot.com/-gmX8gSBdQMU/WSc4178Z6II/AAAAAAAAEzI/TCUmzpB8UawPdhGEaeNOCMlReoWRHiuqwCLcB/s1600/Bristol_ColorsofPoop.png)
+<small>Source: 2.bp.blogspot.com</small>
+
+Webthe color of your stool depends on a couple of things:
+[![Watery with no solid … what your poop color and looks says about your health you should know](http://tse3.mm.bing.net/th?id=OIP.-3DrOoR4Wf8NxlDfR4qnKwAAAA&amp;pid=15.1 "what your poop color and looks says about your health you should know")](https://4.bp.blogspot.com/-9ymJsCpOXns/XMZRc-qpWQI/AAAAAAAAA0g/SqtDrUkkHzY_1Ng696GxZIMFnP4pKod2gCLcBGAs/w1200-h630-p-k-no-nu/BristolStoolChart.png)
+<small>Source: 4.bp.blogspot.com</small>
+
+Only rarely does stool color indicate a potentially serious intestinal condition.
+[![Webfeb 10, 2022 · type 1: adult human poop chart stool color](http://tse4.mm.bing.net/th?id=OIP.XQi-x1xBY50Gu_fElbOKLgAAAA&amp;pid=15.1 "adult human poop chart stool color")](https://seed.com/wp-content/uploads/2019/03/Social_Poop_Bristol_Stool.jpg)
+<small>Source: seed.com</small>
+
+Webjul 31, 2020 · white poop.
+[![Checking the color of your stool is a very good way to monitor your overall health. evaluating 5 qualities of poop to determine your health and diet](http://tse2.mm.bing.net/th?id=OIP.Ud12qYI2oyMeEBG_CkMo3gAAAA&amp;pid=15.1 "evaluating 5 qualities of poop to determine your health and diet")](https://i0.wp.com/www.advancedhealing.com/wp-content/uploads/Bristol-Stool-Chart-Healthy-Poop.jpg)
 <small>Source: i0.wp.com</small>
 
-Everyone poops, as taro gomi, author of a children’s book by that very name, knows well.
-[![Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. types of poop what doctors need you to know the healthy](http://tse1.mm.bing.net/th?id=OIP.1InPLCjDQPm2UF9sgyw02AHaHa&amp;pid=15.1 "types of poop what doctors need you to know the healthy")](https://i0.wp.com/www.thehealthy.com/wp-content/uploads/2020/07/stool-color-chart_2.jpg?w=800)
-<small>Source: i0.wp.com</small>
+When to call the doctor.
+[![Webjul 31, 2020 · white poop. healthy human poop chart](http://tse1.mm.bing.net/th?id=OIP.v1mL4XpkX9tBHoeMKI97kQHaC9&amp;pid=15.1 "healthy human poop chart")](https://static.vecteezy.com/system/resources/previews/005/594/086/non_2x/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-and-abnormal-value-scale-vector.jpg)
+<small>Source: static.vecteezy.com</small>
 
-It&#039;s called the bristol stool chart, and it gives you an idea of how long a stool spent in your bowel before heading out.
-[![It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. healthy and unhealthy stool poop colors explained](http://tse1.mm.bing.net/th?id=OIP.nA4d-XsZa2tlrXHNJkmmYQHaE8&amp;pid=15.1 "healthy and unhealthy stool poop colors explained")](https://www.verywellhealth.com/thmb/LywZ55absHEC6aeG5TKa9gyTVM4=/900x0/filters:no_upscale():max_bytes(150000):strip_icc()/healthy-and-unhealthy-stool-89211-color-V1-9cef9502a0a5433994307575289f34c7.png)
-<small>Source: www.verywellhealth.com</small>
+Webjul 31, 2020 · white poop.
+[![Fluffy, mushy pieces with ragged edges. poop stool color changes color chart and meaning healthy concept stock](http://tse1.mm.bing.net/th?id=OIP.NJZQtyWQ0yoSy2UuQgJiOQAAAA&amp;pid=15.1 "poop stool color changes color chart and meaning healthy concept stock")](https://www.thehealthy.com/wp-content/uploads/2020/07/stool-color-chart_2.jpg?w=800)
+<small>Source: www.thehealthy.com</small>
 
-A blockage of the bile .
-[![Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing. what poop color says about health womenworking](http://tse2.mm.bing.net/th?id=OIP.1TCNbK65UiT9UAN1-v_3TAHaEJ&amp;pid=15.1 "what poop color says about health womenworking")](https://i0.wp.com/www.womenworking.com/wp-content/uploads/2018/07/poop.jpg)
-<small>Source: i0.wp.com</small>
-
-Normal stool color is brown.
-[![Normal stool color is brown. how to become more regular phaseisland17](http://tse3.mm.bing.net/th?id=OIP.qpQQYnjQo1TXyUeVHK6_BAHaH9&amp;pid=15.1 "how to become more regular phaseisland17")](https://i0.wp.com/post.medicalnewstoday.com/wp-content/uploads/sites/3/2020/01/15970-bristol-stool-chart-1296x1394-english-body.jpg?w=1155&amp;h=2929)
-<small>Source: i0.wp.com</small>
-
-Nurses chart urine color by reporting what they observe without making inferences, explains the chronicle of nursing.
-[![A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors. 29 best 30 day breakfast challenge images on pinterest challenge egg](http://tse2.mm.bing.net/th?id=OIP.B-mttsMtSf_n_bKVfKoEcgAAAA&amp;pid=15.1 "29 best 30 day breakfast challenge images on pinterest challenge egg")](https://i.pinimg.com/736x/8c/46/53/8c46532670a4851df7094657926ff533.jpg)
-<small>Source: i.pinimg.com</small>
-
-Normal stool color can range from light yellow to brown to almost black.
-[![Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. your baby poop color chart explained baby journey](http://tse3.mm.bing.net/th?id=OIP.r32ZTofuE91xFBkFlCUSxgHaSh&amp;pid=15.1 "your baby poop color chart explained baby journey")](https://babyjourney.net/wp-content/uploads/2021/04/BABYS-POOP-COLOR-CHART-819x2048.png)
-<small>Source: babyjourney.net</small>
-
-Green stools may be a normal variant.
-[![Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. 6 reasons you should care about your poop health are your eating and](http://tse1.mm.bing.net/th?id=OIP.FItY7jJAKVEJNVD7ZGO31gHaFM&amp;pid=15.1 "6 reasons you should care about your poop health are your eating and")](http://305iir24zxo5sg6qj2nwjqpy.wpengine.netdna-cdn.com/wp-content/uploads/2016/11/Poo-chart-2.jpg)
-<small>Source: 305iir24zxo5sg6qj2nwjqpy.wpengine.netdna-cdn.com</small>
-
-Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding.
-[![Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. what your poop is trying to tell you chart included](http://tse4.mm.bing.net/th?id=OIP.ABEZgHLaJ62BG6nwQnytUAHaJl&amp;pid=15.1 "what your poop is trying to tell you chart included")](https://i0.wp.com/hip2poop.com/wp-content/uploads/sites/4/2019/03/poop-chart.png?resize=1024%2C1326&amp;strip=all)
-<small>Source: i0.wp.com</small>
-
-Green stools may be a normal variant.
-[![A blockage of the bile . all about juan whats the color of your crap and what does it say](http://tse4.mm.bing.net/th?id=OIP.XW-yz0jEKoycwnvB11EjDgAAAA&amp;pid=15.1 "all about juan whats the color of your crap and what does it say")](https://i1.wp.com/all-about-juan.info/wp-content/uploads/2015/11/poopcolorwheel-inline2.jpg)
-<small>Source: i1.wp.com</small>
-
-If stools are white, gray, or pale, .
-[![Green stools may be a normal variant. stool chart illustrations royalty free vector graphics clip art istock](http://tse2.mm.bing.net/th?id=OIP.P0WsGd9l3P3FHba-ExNtkwHaC9&amp;pid=15.1 "stool chart illustrations royalty free vector graphics clip art istock")](https://i1.wp.com/media.istockphoto.com/vectors/shades-color-of-poop-human-feces-color-strip-healthy-concept-normal-vector-id1287866475?k=6&amp;m=1287866475&amp;s=612x612&amp;w=0&amp;h=GKc08Nr0bvAx6vn8vvBeh1ozCxTksCiaus8HM33zaTg=)
-<small>Source: i1.wp.com</small>
-
-The chart is designed to illustrate how different colors are created.
-[![As we previously mentioned, varying shades of brown . the poop scoop what the color of your stool might be telling you](http://tse3.mm.bing.net/th?id=OIP.tg_eNkUNCAwpPyqLzNSONAHaIq&amp;pid=15.1 "the poop scoop what the color of your stool might be telling you")](http://cdn1-www.mandatory.com/assets/uploads/2016/05/man_file_1067582_poo_color.png)
-<small>Source: cdn1-www.mandatory.com</small>
-
-As with size and consistency, poop&#039;s color can be a helpful signal about what&#039;s going on within your body.
-[![It&#039;s normal and healthy to have a bowel movement anywhere between three times a week to three times a day. if you are not pooping you are not in the clear the sol kissed vegan](http://tse4.mm.bing.net/th?id=OIP._LewT_yjvgNaF31wCFxTgwAAAA&amp;pid=15.1 "if you are not pooping you are not in the clear the sol kissed vegan")](https://i0.wp.com/www.solkissedvegan.com/wp-content/uploads/2017/12/Bristol-Stool-and-Color-Chart.jpg?resize=198%2C300)
-<small>Source: i0.wp.com</small>
-
-Green stools may be a normal variant.
-[![The chart is designed to illustrate how different colors are created. lets talk about poo what is your health chart poop types](http://tse4.mm.bing.net/th?id=OIP.cHTYyUyvMr0l984zOPVX2gHaJR&amp;pid=15.1 "lets talk about poo what is your health chart poop types")](https://i0.wp.com/cdn-prod.medicalnewstoday.com/content/images/articles/320/320938/bristol-stool-chart-image-credit-kylet-2011.jpg)
-<small>Source: i0.wp.com</small>
-
-Normal stool color can range from light yellow to brown to almost black.
-[![Adults could learn a thing or two fr. shades color of poop healthy concept stock vector art more images of](http://tse3.mm.bing.net/th?id=OIP._ykyr4Ip_OtZxz6SIIwdcAHaHy&amp;pid=15.1 "shades color of poop healthy concept stock vector art more images of")](https://media.istockphoto.com/vectors/shades-color-of-poop-healthy-concept-vector-id658834730)
-<small>Source: media.istockphoto.com</small>
-
-Everyone poops, as taro gomi, author of a children’s book by that very name, knows well.
-[![Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. color of your poop chart stool color changes and chart what does it](http://tse1.mm.bing.net/th?id=OIP.I4LCXhq20x8DfebzI000KAAAAA&amp;pid=15.1 "color of your poop chart stool color changes and chart what does it")](https://elispot.biz/800/600/https/st2.depositphotos.com/34588546/43035/v/1600/depositphotos_430355312-stock-illustration-shades-color-poop-chart-poop.jpg)
+A healthy stool, then, should reflect a.
+[![Healthcare providers use the chart to help diagnose gastrointestinal (gi) issues such as irritable bowel syndrome (ibs). color of your poop chart](http://tse3.mm.bing.net/th?id=OIP.M9McHfG1z7Skcoflmqp26QAAAA&amp;pid=15.1 "color of your poop chart")](https://elispot.biz/800/600/https/cdn5-images.motherlessmedia.com/images/FAB890E.png)
 <small>Source: elispot.biz</small>
 
-A paint color mixing chart, also called a paint color wheel, is a circle made up of 12 sections of different colors.
-[![Black stools, especially if they have the appearance of tar, suggest gastrointestinal bleeding. the color of baby poop what does it mean baby reference](http://tse2.mm.bing.net/th?id=OIP.KSC3Y0wDu_4GJy70gSuCKAHaGg&amp;pid=15.1 "the color of baby poop what does it mean baby reference")](http://babyreference.com/wp-content/uploads/2016/08/PoopColorsPosterCROPPED.png)
-<small>Source: babyreference.com</small>
-
-A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often .
-[![Adults could learn a thing or two fr. evaluating 5 qualities of poop to determine your health and diet](http://tse4.mm.bing.net/th?id=OIP.Ud12qYI2oyMeEBG_CkMo3gAAAA&amp;pid=15.1 "evaluating 5 qualities of poop to determine your health and diet")](https://i0.wp.com/www.advancedhealing.com/wp-content/uploads/Bristol-Stool-Chart-Healthy-Poop.jpg)
-<small>Source: i0.wp.com</small>
-
-Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume.
-[![The chart is designed to illustrate how different colors are created. poop color chart effy moom](http://tse3.mm.bing.net/th?id=OIP.pAZCM9dy4B4xzK4dJCbO6wHaHI&amp;pid=15.1 "poop color chart effy moom")](https://lh5.googleusercontent.com/proxy/OBkCSKo4Pc5j1x3Jx0tHD1BcYAX4IRH4VVetkolDDd-IRtdfJy8mUb-U4wSVSCHs8GL2at0mnqxVpyxbtqbYcyiFFFVDp5iKuo8JG07uf-t0bmxZP4IPmgQQWWRGyq-P2dYbrDIPNvI1=s0-d)
-<small>Source: lh5.googleusercontent.com</small>
-
-A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often .
-[![Everyone poops, as taro gomi, author of a children’s book by that very name, knows well. types of poop colors frequency abnormal poop more mindbodygreen](http://tse2.mm.bing.net/th?id=OIP.rh4bmMLUVgFp6j8mXXnlBgAAAA&amp;pid=15.1 "types of poop colors frequency abnormal poop more mindbodygreen")](https://mindbodygreen-res.cloudinary.com/image/upload/w_480,q_auto,f_auto,fl_lossy/ftr/poopinfo.jpg)
-<small>Source: mindbodygreen-res.cloudinary.com</small>
-
-Green stools may be a normal variant.
-[![Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume. how to collect a stool sample australia](http://tse2.mm.bing.net/th?id=OIP.vHA_OoBEYLF2yoPfnh0bQAHaE8&amp;pid=15.1 "how to collect a stool sample australia")](https://i.pinimg.com/originals/2d/46/d3/2d46d3e9557d08b417f7ea1109021653.png)
+Webjul 31, 2020 · white poop.
+[![In general, these colors are normal and variations in these colors do not indicate that anything is wrong. pin by saphir fox on body tips phlegm color stool color chart stool](http://tse1.mm.bing.net/th?id=OIP.Q_HdukZufQd-YhZ1f7yiKQHaGt&amp;pid=15.1 "pin by saphir fox on body tips phlegm color stool color chart stool")](https://i.pinimg.com/originals/d9/cb/98/d9cb981c9ca368215b39e507bd5b68aa.jpg)
 <small>Source: i.pinimg.com</small>
 
-A diet rich in green vegetables, especially spinach, or iron supplements also may cause green poop, though iron often .
-[![As with types 3 and 4 above, brown is generally considered a normal and healthy color for poop. poop color meaning effy moom](http://tse2.mm.bing.net/th?id=OIP.OYaF-YlKc7rO8OJKpzcRSAHaGc&amp;pid=15.1 "poop color meaning effy moom")](https://i0.wp.com/lh4.googleusercontent.com/proxy/zziKWu-_QSWRz2MFOBbnonyUN5W3X5ePwnwLDrjI7nmDz9iDSsVu6XnyH9S8RcUZOImfsGzM2Nn__nkSwT167V5Yh_s2AnFRK2GoSqOhDNLwQmlyGDnC_EcRcbmUe0yaEm-1Gd4qdh-Y=s0-d)
+Your diet and how much bile is in it.
+[![The normal stool color is brown. identifying types of poop with the bristol stool chart and more](http://tse3.mm.bing.net/th?id=OIP.vjP12rXbrr049qJ-OgQeagAAAA&amp;pid=15.1 "identifying types of poop with the bristol stool chart and more")](https://images-prod.healthline.com/hlcmsresource/images/topic_centers/2019_5/7561-004-your-poop-and-you-consistency-1296x514-body.jpg)
+<small>Source: images-prod.healthline.com</small>
+
+Weboct 8, 2022 · stool comes in a range of colors.
+[![Your diet and how much bile is in it. poop stool color changes color chart and meaning healthy concept stock](http://tse2.mm.bing.net/th?id=OIP.fP2hpDpHaZsndx19snraFAAAAA&amp;pid=15.1 "poop stool color changes color chart and meaning healthy concept stock")](https://i0.wp.com/www.wordlayouts.com/wp-content/uploads/2016/08/Stool-Color-Pictures.png)
 <small>Source: i0.wp.com</small>
 
-Further, it is important for a nurse to note changes in urine color from previous observations or from the previous docume.
+Webnov 26, 2023 · the stool color chart is a visual tool used to identify and categorize the different colors of human stool.
+[![When to see your doctor. color of your poop chart stool color changes and chart what does it](http://tse3.mm.bing.net/th?id=OIP.eR3w2JreirHtTHmf-exfSQAAAA&amp;pid=15.1 "color of your poop chart stool color changes and chart what does it")](https://i1.wp.com/elispot.biz/800/600/https/i.pinimg.com/736x/8c/f4/4f/8cf44febc84ec819aa374dbfb1ad736e--colors-health.jpg)
+<small>Source: i1.wp.com</small>
+
+However, a change in diet or the presence of some conditions can lead to a change in stool color.
+[![The color is the result of what you eat and how much bile is in your stool. shades color of poop healthy concept stock vector adobe stock](http://tse2.mm.bing.net/th?id=OIP.SK4DZ_hjuwwJRpcM7nb-dAAAAA&amp;pid=15.1 "shades color of poop healthy concept stock vector adobe stock")](https://i0.wp.com/as2.ftcdn.net/v2/jpg/01/42/05/13/1000_F_142051303_jsUKkbC4pJnU0wa0g5TZPfSiHoGOpnCP.jpg)
+<small>Source: i0.wp.com</small>
+
+Should i go to the er?
+[![Thinner and more snakelike, plus smooth and soft. lets talk about poop](http://tse1.mm.bing.net/th?id=OIP.1Z3CRl5HCcw5wLpu5KQ2hAHaLG&amp;pid=15.1 "lets talk about poop")](https://i0.wp.com/pursuitofresearch.org/wp-content/uploads/2019/03/Text-placeholder-3-683x1024.png)
+<small>Source: i0.wp.com</small>
+
+Healthcare providers use the chart to help diagnose gastrointestinal (gi) issues such as irritable bowel syndrome (ibs).
+[![The color is the result of what you eat and how much bile is in your stool. stool color change chart](http://tse2.mm.bing.net/th?id=OIP.30HEiFLVnj2WofcoloV5FwAAAA&amp;pid=15.1 "stool color change chart")](https://i1.wp.com/images.sampletemplates.com/wp-content/uploads/2015/10/09183530/Sample-Stool-Color-Chart-Template.jpg)
+<small>Source: i1.wp.com</small>
+
+Watery with no solid …
+[![Weboct 8, 2022 · stool comes in a range of colors. old time remedies health and wellness what your stool is telling you](http://tse1.mm.bing.net/th?id=OIP.fcMYA9oHmTNL41xpQTF3SAAAAA&amp;pid=15.1 "old time remedies health and wellness what your stool is telling you")](https://i0.wp.com/3.bp.blogspot.com/-l2ywaQm5Xk4/Viuaxm-yy8I/AAAAAAAABks/isUFmEifeOY/s320/e143c211a07073d53e56055e473271d1.jpg)
+<small>Source: i0.wp.com</small>
+
+Hard and lumpy and starting to resemble a sausage.
+[![Weboct 8, 2022 · stool comes in a range of colors. pin on health and wellness](http://tse2.mm.bing.net/th?id=OIP.FMLtQvuXhyIUMOg0CBLv9wAAAA&amp;pid=15.1 "pin on health and wellness")](https://i.pinimg.com/originals/fc/3e/6c/fc3e6c7ae7b032424ae8fe90f9a24948.png)
+<small>Source: i.pinimg.com</small>
+
+Checking the color of your stool is a very good way to monitor your overall health.
+[![However, a change in diet or the presence of some conditions can lead to a change in stool color. color of your poop chart stool color changes and chart what does it](http://tse1.mm.bing.net/th?id=OIP.I4LCXhq20x8DfebzI000KAHaH3&amp;pid=15.1 "color of your poop chart stool color changes and chart what does it")](https://elispot.biz/800/600/https/st2.depositphotos.com/34588546/43035/v/1600/depositphotos_430355312-stock-illustration-shades-color-poop-chart-poop.jpg)
+<small>Source: elispot.biz</small>
+
+In general, these colors are normal and variations in these colors do not indicate that anything is wrong.
+[![When to see your doctor. poop guide 101 how to tell your childs health by their stool dr parents](http://tse2.mm.bing.net/th?id=OIP.pM8fQRJhhWNqy98-OjmzQwHaEl&amp;pid=15.1 "poop guide 101 how to tell your childs health by their stool dr parents")](https://drparents.com/wp-content/uploads/2020/10/color-wheel-poop-1568x972.jpg)
+<small>Source: drparents.com</small>
+
+Webjul 31, 2020 · white poop.
+[![Hard and lumpy and starting to resemble a sausage. unhealthy poop colors](http://tse3.mm.bing.net/th?id=OIP.S0npTlP-0tIpTi-rP6IaowAAAA&amp;pid=15.1 "unhealthy poop colors")](https://www.all-about-ferrets.com/wp-content/uploads/poopchart2indigestions.jpg)
+<small>Source: www.all-about-ferrets.com</small>
+
+When to call the doctor.
+[![Thinner and more snakelike, plus smooth and soft. aim global healthy living tips making money online what does stool](http://tse3.mm.bing.net/th?id=OIP.1eoXq_VHCGWwACXxqFOH4gAAAA&amp;pid=15.1 "aim global healthy living tips making money online what does stool")](https://2.bp.blogspot.com/-8iSo0d118-w/V374gcuZ-1I/AAAAAAAABIg/YN0MIHTdzBUPegrBdR0_1FInyZVq43MDQCLcB/s1600/poop.jpg)
+<small>Source: 2.bp.blogspot.com</small>
+
+Watery with no solid …
+[![Webthe color of your stool depends on a couple of things: poop color chart effy moom](http://tse1.mm.bing.net/th?id=OIP.pAZCM9dy4B4xzK4dJCbO6wHaHI&amp;pid=15.1 "poop color chart effy moom")](https://i1.wp.com/lh5.googleusercontent.com/proxy/OBkCSKo4Pc5j1x3Jx0tHD1BcYAX4IRH4VVetkolDDd-IRtdfJy8mUb-U4wSVSCHs8GL2at0mnqxVpyxbtqbYcyiFFFVDp5iKuo8JG07uf-t0bmxZP4IPmgQQWWRGyq-P2dYbrDIPNvI1=s0-d)
+<small>Source: i1.wp.com</small>
+
+Webjul 31, 2020 · white poop.
+[![All shades of brown and even green are considered normal. color of your poop chart](http://tse4.mm.bing.net/th?id=OIP.1TCNbK65UiT9UAN1-v_3TAAAAA&amp;pid=15.1 "color of your poop chart")](https://i0.wp.com/www.womenworking.com/wp-content/uploads/2018/07/poop.jpg)
+<small>Source: i0.wp.com</small>
+
+Should i go to the er?
+[![The normal stool color is brown. types of poop appearance color and what is normal](http://tse4.mm.bing.net/th?id=OIP.qpQQYnjQo1TXyUeVHK6_BAHaH9&amp;pid=15.1 "types of poop appearance color and what is normal")](https://i0.wp.com/post.medicalnewstoday.com/wp-content/uploads/sites/3/2020/01/15970-bristol-stool-chart-1296x1394-english-body.jpg?w=1155&amp;h=2929)
+<small>Source: i0.wp.com</small>
+
+Watery with no solid …
+[![Checking the color of your stool is a very good way to monitor your overall health. yellow poop color chart](http://tse4.mm.bing.net/th?id=OIP.DNpXVoIUgriKDnnOuJiQ5wHaGc&amp;pid=15.1 "yellow poop color chart")](https://i0.wp.com/images.sampletemplates.com/wp-content/uploads/2015/06/stool-color-meanings.jpg)
+<small>Source: i0.wp.com</small>
+
+Fluffy, mushy pieces with ragged edges.
+[![It starts out as a. adult human poop chart stool color](http://tse4.mm.bing.net/th?id=OIP.2lvI7MV9vekbkOgh5aW62AAAAA&amp;pid=15.1 "adult human poop chart stool color")](https://i0.wp.com/www.25doctors.com/wp-content/uploads/2018/12/Poop-color-chart-720x1800.png)
+<small>Source: i0.wp.com</small>
+
+Bile is a fluid your liver makes to digest fats.
